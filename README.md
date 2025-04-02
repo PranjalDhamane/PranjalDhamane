@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏢 Currently pursuing bachelors in data science and business intelligence<br>⭐ Aspiring data scientist<br>🧠 Deriving insights from data one metric at a time<br>👩‍🍳 Love to cook and watch cooking competitions
+🏢 Completed my degree in BSc data science and business intelligence<br>⭐ Aspiring data scientist<br>🧠 Crunching numbers and generating insights<br>🤝 Wanna collaborate? Email me! pranjaldhamane37@gmail.com
 
 
 ## 🌐 Socials:
